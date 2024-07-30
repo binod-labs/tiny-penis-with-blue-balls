@@ -1,2 +1,3 @@
-# tiny-pen-is-with-blue-balls
-Custom License, do not copy my assignment
+# tiny-penis-with-blue-balls
+
+Desperate times call for desperate measures.
